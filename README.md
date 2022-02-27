@@ -1,1 +1,1 @@
-<b>Check Out The http://Ryu120.github.io</b>
+<b>Check Out The http://Ryu.github.io</b>
